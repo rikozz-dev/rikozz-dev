@@ -1,2 +1,3 @@
 - 👋 Hi, I’m @rikozz-dev
-- ❤️ Follow me on (instagram)[https://www.instagram.com/rikozz_]
+- ❤️ Check [my Website](https://www.rikozz.me/)
+- ❤️ Follow me on [instagram](https://www.instagram.com/rikozz_)
